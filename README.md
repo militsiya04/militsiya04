@@ -1,5 +1,5 @@
 - 📫 How to reach me: t.me/denis_mushkatyorov
-- ‍🎓 Student of Kyiv Polytehnic Institute
+- ‍🎓 Student of Kyiv Polytechnic Institute
 
 <!--
 -->
